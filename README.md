@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### 🔭 I’m currently working at Softec
+### 🔭 I’m currently working at Roshka
 ### 📫 How to reach me: https://oscargonzalez.work
 ## 📍 Asuncion, Paraguay
 ## This are contributions that I made in my work so far (January 2021):
